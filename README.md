@@ -1,1 +1,0 @@
-# Study-Studio.1
